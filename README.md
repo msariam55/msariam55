@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @msariam55
-- 👀 I’m interested in cosing and programming
+- 👀 I’m interested in coding and programming
 - 🌱 I’m currently learning programming 
 - 💞️ I’m looking to collaborate on helping athors
 - 📫 How to reach me you can contact with me on linkdin
